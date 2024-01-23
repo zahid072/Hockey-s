@@ -1,1 +1,1 @@
-Live link: (https://zahid072.github.io/Hockey-s/)
+Live link: (https://zahid072.github.io/Hockeys/)
